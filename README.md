@@ -1,1 +1,2 @@
-# wireplumber_ldac
+© Juhász Bence
+Minden jog fenntartva
